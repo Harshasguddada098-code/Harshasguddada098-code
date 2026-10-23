@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm a first year student of Gitam University Blr, And i'm currently working on website Creating 
+I'm a first year student of Gitam University Blr, And i'm currently working on website Creation using AI 
 
 
 ## 🌐 Socials:
